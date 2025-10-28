@@ -13,7 +13,7 @@ O conteúdo está organizado por **fichas** e inclui:
 - 🛠️ Códigos-fonte em Python organizados por tema  
 
 ---
-[test.com](https://pt.pornhub.com/view_video.php?viewkey=68d0583c2746f))
+[test.com](https://pt.pornhub.com/view_video.php?viewkey=68d0583c2746f)
 
 ## 🗂 Estrutura do Repositório
 
