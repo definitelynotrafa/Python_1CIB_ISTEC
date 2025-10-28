@@ -14,7 +14,7 @@ O conteúdo está organizado por **fichas** e inclui:
 
 ---
 
-[youtube.com](pornhub.com)
+![youtube.com](pornhub.com)
 
 ## 🗂 Estrutura do Repositório
 
